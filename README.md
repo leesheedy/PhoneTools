@@ -3,7 +3,7 @@
 </div>  
   
 
-### <div align="center">I'm Lee, a full-time IT-Support Specialist 👨‍💻 working with IT since 2012 🚀</div>  
+### <div align="center">I'm Lee, a full-time IT-Support Specialist 👨‍💻 working with IT since 2021 🚀</div>  
   
 
 <br/>  
